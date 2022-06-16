@@ -1,2 +1,0 @@
-# bronxresort.github.io
-asd
